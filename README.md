@@ -8,3 +8,5 @@
 - gosto de cachoeiras 
 - gosto de ouvir musica
 - 💲
+
+![](https://media.tenor.com/KyQn8EktSfsAAAAC/cassio-guitarra.gif)
